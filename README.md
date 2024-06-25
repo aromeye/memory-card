@@ -1,1 +1,1 @@
-i will NOT be touching this shit no more
+i will NOT be touching this no more
